@@ -1,4 +1,4 @@
-# 💫 About Me:
+Hi✋I'am Ganesh G Madival
 I'm student<br>
 
 
